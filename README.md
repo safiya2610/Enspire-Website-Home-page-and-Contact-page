@@ -1,3 +1,3 @@
 # Enspire-Website-Home-page-and-Contact-page
 # Home Page
-#![image](https://github.com/safiya2610/Enspire-Website-Home-page-and-Contact-page/assets/147792763/fa12fdf1-cf1e-4bb7-bb5d-0274cf02de11)
+![ens1](https://github.com/safiya2610/Enspire-Website-Home-page-and-Contact-page/assets/147792763/13752afc-79a2-4e7e-88dc-bab2902cee86)
