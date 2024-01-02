@@ -6,4 +6,4 @@
 ![2024-01-02 (5)](https://github.com/safiya2610/Enspire-Website-Home-page-and-Contact-page/assets/147792763/faeecae0-3058-44bb-a6e5-042c355d414b)
 ![2024-01-02 (7)](https://github.com/safiya2610/Enspire-Website-Home-page-and-Contact-page/assets/147792763/105bbe1a-74d8-49f7-a791-18c6d56f49a3)
 #CONTACT Page
-![image](https://github.com/safiya2610/Enspire-Website-Home-page-and-Contact-page/assets/147792763/628d4bf3-0f32-46ac-914e-5dc5a559792b)
+![2024-01-02 (9)](https://github.com/safiya2610/Enspire-Website-Home-page-and-Contact-page/assets/147792763/23fbc817-15ca-4940-a417-91746b867c93)
